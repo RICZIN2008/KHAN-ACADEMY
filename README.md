@@ -1,7 +1,7 @@
 # Download do navegador Android para executar script 🔰
 
-By ric_zin_404
+By @RicZin7
 
 ### DOWNLOAD
 1. **mediafire**:
-   - [Navegador_Via_6.2.0](https://www.mediafire.com/file/dlh6ut70yw78w0l/Via_6.2.0.apk/file)
+   - [Td7|Web](https://drive.google.com/drive/u/0/mobile/folders/1ABtEy4gWgBIv8sUWzT7j9B3uXLErjb7a?pli=1)
